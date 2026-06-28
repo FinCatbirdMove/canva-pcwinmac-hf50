@@ -1,4 +1,4 @@
-# 
+# VIP Canva preajustes para Mac OS | Mejor Canva preajustes para PC Windows. Con enmascaramiento y biblioteca de componentes — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
